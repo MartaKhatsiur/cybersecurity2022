@@ -1,1 +1,0 @@
-# cybersecurity2022
